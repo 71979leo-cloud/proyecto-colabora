@@ -1,3 +1,4 @@
+Jose Manuel Garcia Gomez 
 Mauricio Ivan Castro Hernandez
 Julio David Gomez Zendejas
 Daniel Alejandro Balleza Vargas
