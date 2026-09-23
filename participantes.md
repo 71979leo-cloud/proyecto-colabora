@@ -1,3 +1,4 @@
+Dulce Fernanda Verdin Delgado
 Jonathan Noe Mora Muñoz 
 Ian Hernandez Hernandez
 Jose Manuel Garcia Gomez 
