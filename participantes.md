@@ -1,3 +1,4 @@
+Julio David Gomez Zendejas
 Daniel Alejandro Balleza Vargas
 Luis Eduardo Soto Muñoz
 Angel Alberto Medina Lopez
